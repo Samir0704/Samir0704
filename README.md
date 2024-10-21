@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning English 
 - 💞️ I’m looking to collaborate on big big companies blan
 - 📫 How to reach me 99-646-45-31 & abdurahimovsamir219@gmail.com
-- 📌 The goal Taking my parents on Hajj and being a senyor programmer .
+- 📌 The goal Taking my parents on Hajj and being a senior programmer .
